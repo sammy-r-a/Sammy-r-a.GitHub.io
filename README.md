@@ -1,1 +1,3 @@
-# Sammy-r-a.GitHub.io
+# welcome to my page 
+
+my name is sammy
